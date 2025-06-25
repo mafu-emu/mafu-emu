@@ -3,14 +3,14 @@
 ###
 
 <div align="center">
-  <img height="20" src="https://64.media.tumblr.com/3bfc5b691ef7693440ef37795420b762/a5aca11a18f3458b-f1/s400x600/9ab22796ee406598c865e853733be0db5647aa8f.gifv"  />
+  <img height="20" src="https://64.media.tumblr.com/feb591b9b715999e6487939cb6b3beba/4f11a9ca2b61893a-78/s1280x1920/67e67dbfb7c8cc479ee58844ddea189d8cd9db80.pnj"  />
 </div>
 
 ###
 
 <br clear="both">
 
-<img align="left" height="200" src="https://66.media.tumblr.com/ecab246dc7223fd2fb878f40a59cb676/tumblr_pa1rekQwin1vgzd4so1_r1_400.gifv"  />
+<img align="left" height="200" src="https://64.media.tumblr.com/b1264baedfd822e9e46b056bd21f6413/4e3cc786b21322f7-d7/s400x600/64ac25b38b87eacc6900dd41ebf2fed32137b4b7.gifv"  />
 
 ###
 
